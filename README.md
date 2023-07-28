@@ -11,7 +11,7 @@ all contained in one exe
 - 🤔 I’m looking forward to help beginners
 - 💬 Ask me about doubts
 - 📫 How to reach me: sparklingcigarontop#1913
--                      my disord
+-                      my discord
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i like phonk
 -->thanks!
